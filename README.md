@@ -10,4 +10,4 @@ Utilizo em aula a plataforma [alura](https://wwwalura.com.br)
 
 galdino.kathelyn@escola.pr.gov.br
 
-![](https://media.tenor.com/DiuV-006RzgAAAAM/underwater-mermaid.gif)
+![](https://media.tenor.com/FJc93sjuppEAAAAM/yourarchivist-orange-cat.gif)
